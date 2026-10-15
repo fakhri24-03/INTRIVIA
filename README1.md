@@ -10,4 +10,6 @@
 
 ## Kesan Pesan Cluster [Nomor Cluster 10] Sejauh Ini 
 [aku bener bener seneng banget jadi anggota cluster 10 karena seru dan menyenangkan dan makasih untuk kak ryo dan kak zizi yang udh jadi fasil kita yang udah sabar nuntun kita makasih banyak kakak fasil cluster 10 dan para fasil yang lain.]
-.
+
+## Harapan Kuliah 
+[selama kuliah ini aku ingin membangun relasi sebanyak mungkin dan belajar segala hal yang ingin saya pelajari] 
